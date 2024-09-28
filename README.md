@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Ava!
 - 👀 I’m interested in games, anime and cats.
-- 💞️ I’m looking to collaborate on LOVE!
+- 💞️ I’m taken by [iakzs](https://github.com/iakzs)!
 - 📫 How to reach me, Discord : strawberryavauwu
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I have 3 little kitty cats!
